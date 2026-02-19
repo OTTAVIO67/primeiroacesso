@@ -1,9 +1,11 @@
-### ola esse e meu perfil, seja bem vindo 
-- meu nome e Luiz Ottavio
-- trabalho na empresa [netflix](https://www.netflix.com/br/)
-- trabalho na area de divugaçao
+### Ola esse e meu perfil, seja bem vindo 
+- Meu nome e Luiz Ottavio☠️👽👁️🦷🐊🐺
+- Trabalho na empresa [netflix](https://www.netflix.com/br/)
+- Trabalho na area de divugaçao,imagem,media e comerciais
+- Ttilizo esse site para compartilha meus pregetos
+- Gosto de assisti game play de jogos pela [twitch](https://www.twitch.tv/)
 
-![](https://media.tenor.com/40K_xlS-VWcAAAAi/speech-bubble-maid.gif)
+
 
 
 
